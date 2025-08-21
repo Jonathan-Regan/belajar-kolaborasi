@@ -1,2 +1,2 @@
 # belajar-kolaborasi
-Halo Saya
+Saya Jonathan Regan
